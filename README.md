@@ -1,1 +1,1 @@
-# # OPAN, MEU NOME  É LUCIANA ;)
+# # OPAN, MEU NOME É LUCIANA ;)
